@@ -2,4 +2,4 @@
 title: 公開
 ---
 
-This file has been created automatically by GitHub Publish plugin. Quartz expects a 'index.md' at the top level to render the home page of your site, feel free to edit the title and write your content!
+這是作者自己腦中的奇怪世界觀，左上角可以瀏覽角色設計、都市傳說、陣營分部、劇情大綱
