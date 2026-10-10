@@ -13,6 +13,6 @@
 
 
 
-對[[009丹德萊Dandelion（蒲公英）]]有感情但生理缺陷讓他沒辦法放開手去愛他只能忍痛拒絕
+對[[009丹德萊Daandorai（蒲公英）Dandelion]]有感情但生理缺陷讓他沒辦法放開手去愛他只能忍痛拒絕
 
 https://youtu.be/ZJTuh5cW-SY?si=KMOPJyYMHN3_D44r
